@@ -13,7 +13,11 @@
 
 2. MARCO TEÓRICO (RESUMEN)
 
-
+![1](https://user-images.githubusercontent.com/117045943/203826943-e3a81873-929a-4e8d-bb9c-ab4122b7ee89.jpg)
+![2](https://user-images.githubusercontent.com/117045943/203826949-15343bbf-1471-47db-b5cb-64d58486a5b1.jpg)
+![3](https://user-images.githubusercontent.com/117045943/203826972-05a6de2b-8b9a-4435-856f-361684e7363c.jpg)
+![4](https://user-images.githubusercontent.com/117045943/203826984-e9a20f59-ff0e-4d12-abf5-19207dca52c3.jpg)
+![5](https://user-images.githubusercontent.com/117045943/203827005-25243318-8515-4186-8f59-8873b35fe873.jpg)
 
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
 
